@@ -1,1 +1,1 @@
-## Hiii I'm Lindsey/Linds !
+## Hiii I'm Lindsey/Linds ✨
