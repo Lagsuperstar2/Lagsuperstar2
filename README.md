@@ -1,7 +1,7 @@
 ## Hiii I'm Lindsey/Linds ✨
 
 🌱 Currently a Senior CS student
-🔭 Building data & analytics projects in sports and tech  
+🔭 Building data & analytics projects in sports and tech
 ⚡ Interested in analytics, software engineering, and data science
 
 
