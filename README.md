@@ -1,6 +1,6 @@
 ## Hiii I'm Lindsey/Linds ✨
 
-🌱 Currently a Senior CS student            
+🌱 Bachelor of Science in Computer Science            
 🔭 Building data & analytics projects in sports and tech            
 ⚡ Interested in analytics, software engineering, and data science
 
